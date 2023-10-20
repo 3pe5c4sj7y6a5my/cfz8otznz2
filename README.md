@@ -1,1 +1,1 @@
-# cfz8otznz2
+Photoshop also offers a wide range of filters and effects that allow you to add various styles and moods to your images. You can apply effects such as blurring, sharpening, gradients, shadows, and much more to create unique and impressive effects. Check out here - https://github.com/vio1217/Illustrator
